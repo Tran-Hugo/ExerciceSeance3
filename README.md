@@ -1,0 +1,2 @@
+# ExerciceSeance3
+ 
